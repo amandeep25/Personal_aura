@@ -1,4 +1,4 @@
-Info | Click Here
+Social Media Platforms | Connect with me here
 ------------ | -------------
 Link to my website| http://website-amandeep.000webhostapp.com/ 
 Link to my LinkedIn | https://www.linkedin.com/in/amandeep-kaur-81b677183/
